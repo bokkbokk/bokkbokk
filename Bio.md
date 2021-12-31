@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bokkbokk
+- 🌱 I’m currently learning ... web basics then python
+- 📫 How to reach me  bokkbokk#5367 on discord 
